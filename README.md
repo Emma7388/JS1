@@ -1,1 +1,3 @@
-# JS1 No tuve tiempo de terminarlo por el trabajo, ando medio atrasado, apenas pueda lo actualizo
+# JS1 No tuve tiempo de terminarlo por el trabajo, ando medio atrasado, apenas pueda lo actualizo....
+Vamos compañero, vos podes. pedi ayuda, siempre hay quien de una mano.
+
